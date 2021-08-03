@@ -1,1 +1,1 @@
-Power from: MmRouhani
+برای فعال سازی کلیک کلیک کنید
